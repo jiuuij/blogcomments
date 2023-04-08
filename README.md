@@ -1,1 +1,1 @@
-# repojitory
+# JIu's develog comments
